@@ -1,4 +1,4 @@
-#  
+#  Experience bridger western like never before with best Scripts for bridger western, the #1 Script. Includes unlimited stamina and auto-sell for
 
 
 
